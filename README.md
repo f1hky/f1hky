@@ -1,10 +1,11 @@
-<img width="1800" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
+<img width="1400" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
-<img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" /><img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/984abcf9-b5e7-491f-8eee-f5e00725844b" /><img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" /><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/984abcf9-b5e7-491f-8eee-f5e00725844b" /><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" />
 
-<img width="1800" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
+<img width="1400" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
-wip
+⠀⠀ᨦ⠀𓈒hᧉ⠀⠀♡ ̫̫⠀⠀ela⠀ॱॢ⠀⠀
+
 
 
 <img width="489" height="481" alt="Image" src="https://github.com/user-attachments/assets/bd6b9968-b066-4c5e-9ab7-0ee0459f8f87" />

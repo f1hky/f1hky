@@ -8,7 +8,7 @@
 
 <img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
-⠀fabes⠀⠀ ۫ ۫<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b1edbcef-0fc4-4dfa-8d46-5d50948d0b3e" /> ۪.⠀⠀⠀massive wip,, ok
+⠀𝒇αbᥱ𝕣ˢ⠀⠀ ۫ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/ec960ccb-42b8-4601-9d5d-358b4309959b" /> ۪.⠀⠀⠀⠀ოiɳoꭉ  
 
 <img width="489" height="481" alt="Image" src="https://github.com/user-attachments/assets/bd6b9968-b066-4c5e-9ab7-0ee0459f8f87" />
 <img width="489" height="481" alt="Image" src="https://github.com/user-attachments/assets/685c075c-e09e-4641-9427-8880d71acd77" />

@@ -10,7 +10,7 @@
 
 
 ⠀⠀𝒇αbᥱ𝕣ˢ⠀⠀ ۫ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/ec960ccb-42b8-4601-9d5d-358b4309959b" /> ۪.⠀⠀①⁶ 𓏼⠀⠀ოiɳoꭉ ﹗  
-⠀<img width="22" height="22" alt="Image" src="https://github.com/user-attachments/assets/16fd2619-edbd-4965-813a-7fa3eb7dffba" />⠀hℯ⠀⠀♡⃘𓏼⠀⠀eℓα⠀ ֹ⠀
+⠀<img width="22" height="22" alt="Image" src="https://github.com/user-attachments/assets/16fd2619-edbd-4965-813a-7fa3eb7dffba" />⠀[hℯ](https://pronouns.cc/@zegras)⠀⠀♡⃘𓏼⠀⠀eℓα⠀ ֹ⠀
 ⠀𓎐⠀⠀մnℓαвᥱ𝕝d⠀tᑲ𝕠𝗒⠀ྀི<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/cfe1123e-306f-406a-bb60-715a52c0ddd6" />.
 
 

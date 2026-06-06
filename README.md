@@ -1,12 +1,14 @@
-<img width="1400" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
+<div align="center">
+
+<img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<a href="https://hits.sh/github.com/5poke/5poke/"><img alt="Hits" src="https://hits.sh/github.com/5poke/5poke.svg?label=%E2%A0%80%3A%E2%A0%80%F0%9D%92%A2%CF%85%C9%91%F0%9D%97%8B%E1%91%AF%EA%AA%B1%C9%91%F0%9D%95%9F%20%20%CC%AB%CC%AB%E2%A0%80%C9%91%F0%90%93%A3%F0%9D%97%80%E1%A5%B1%E1%A5%A3%F0%9D%93%88%E2%A0%80%E2%99%A5&extraCount=98&color=363636&labelColor=fa740e&logo=nhl"/></a>
 
 <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" /><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/984abcf9-b5e7-491f-8eee-f5e00725844b" /><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" />
 
-<img width="1400" height="12" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
+<img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
 ⠀fabes⠀⠀ ۫ ۫<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b1edbcef-0fc4-4dfa-8d46-5d50948d0b3e" /> ۪.⠀⠀⠀massive wip,, ok
-
-
 
 <img width="489" height="481" alt="Image" src="https://github.com/user-attachments/assets/bd6b9968-b066-4c5e-9ab7-0ee0459f8f87" />
 <img width="489" height="481" alt="Image" src="https://github.com/user-attachments/assets/685c075c-e09e-4641-9427-8880d71acd77" />

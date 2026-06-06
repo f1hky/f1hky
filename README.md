@@ -16,10 +16,9 @@
 
 <img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
+[<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/bd6b9968-b066-4c5e-9ab7-0ee0459f8f87" />](https://nuck.straw.page/)<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" />[<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/685c075c-e09e-4641-9427-8880d71acd77" />](https://rentry.co/forty6)
 
-[<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/bd6b9968-b066-4c5e-9ab7-0ee0459f8f87" />](https://nuck.straw.page/)<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/4a380c20-4afb-46ee-b974-3d2758d9a14a" />[<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/685c075c-e09e-4641-9427-8880d71acd77" />](https://rentry.co/forty6)
-
-𝓈trɑ𝕨⍴ᥲ𝑔𝒆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ໒꒰⠀⠀ᴗ͈⠀⠀ ݂⠀⠀ᴗ͈⑅ა⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ꭉ𝓮𝕟t𝚛ᥡ
+ˢᵗʳᵃʷᵖᵃᵍᵉ⠀⠀⠀⠀໒꒰⠀ᴗ͈⠀ ݂⠀⠀ᴗ͈⑅ა⠀⠀⠀ ʳᵉⁿᵗʳʸ
 
 <img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 <img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/68c7737f-39a5-409a-8281-ecd8d20ad52e" />

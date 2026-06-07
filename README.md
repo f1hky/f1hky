@@ -32,4 +32,4 @@
 
 <img width="234" height="30" alt="Image" src="https://github.com/user-attachments/assets/ae0a68ba-d260-42f3-be32-eba932f9961f" />
 
-hi big boy @driysdale yes lets make out gladly
+hi big boy [@driysdale](https://github.com/driysdale) yes lets make out gladly

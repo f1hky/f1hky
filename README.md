@@ -14,7 +14,6 @@
 ⠀𓎐⠀⠀մnℓαвᥱ𝕝d⠀tm𝕒𝚜𝒸⠀ྀི<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/cfe1123e-306f-406a-bb60-715a52c0ddd6" />.
 
 
-⠀⠀ ͟♪ ̫̫  ⠀ྀིßd𝕒y⠀𓐇⠀𝟙𝟎 𝟘𝟕 𝟎𝟡ֺ۪ ⑅
 
 <img width="400" height="2" alt="Image" src="https://github.com/user-attachments/assets/6d1f0912-8c9f-4a08-877c-275683ca594d" />
 
@@ -31,8 +30,6 @@
 
 
 <img width="234" height="30" alt="Image" src="https://github.com/user-attachments/assets/ae0a68ba-d260-42f3-be32-eba932f9961f" />
-
-hi big boy [@driysdale](https://github.com/driysdale) yes lets make out gladly
 
 
 gello this is very cool [https://rentry.co/spamfollow](https://rentry.co/spamfollow) and is about the spam following accs on gt
